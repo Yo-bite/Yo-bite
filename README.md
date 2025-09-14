@@ -53,3 +53,13 @@
 
 𝐴𝑛𝑑 𝐼 𝑑𝑖𝑠𝑙𝑖𝑘𝑒 𝑎𝑙𝑙 𝑖𝑙𝑙𝑜𝑔𝑖𝑐𝑎𝑙 𝑛 𝑢𝑛𝑟𝑒𝑎𝑠𝑜𝑛𝑎𝑏𝑙𝑒 𝑡ℎ𝑖𝑛𝑔𝑠 .
 ![ultrakill-v1-ultrakill](https://github.com/user-attachments/assets/6a003e54-bee7-4f34-b37a-1276607abc6d)
+
+---
+
+![one-capitano-please-genshin-pull](https://github.com/user-attachments/assets/13a8c5f7-480f-4fc8-9c7b-c922fc517197)
+
+𝑆ℎℎ, ℎ𝑒'𝑠 𝑠𝑙𝑒𝑒𝑝𝑖𝑛𝑔..
+
+![natlan-archon-quest-capitano (2)](https://github.com/user-attachments/assets/86b467fa-69e5-48ba-8263-219614a91692)
+
+![natlan-archon-quest-capitano (1)](https://github.com/user-attachments/assets/b12f7843-d3c1-4e86-8848-c76aaf310135)
