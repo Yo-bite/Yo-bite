@@ -32,6 +32,9 @@
                                                                  𝑀𝐸𝑀𝐸𝑆
 
 ![road-trip-madness-combat (1)](https://github.com/user-attachments/assets/97e0542e-dc3a-4ddb-a078-490cc5469368)
+
+## 2𝑩𝑯𝑨𝑵𝑲 𝑹𝑨𝑨𝑮𝑯𝑯𝑯 ![6075334_1251169_aokicyber_untitled-6075334 af4fc9dd141835126ef96ee2ffdbc4ac](https://github.com/user-attachments/assets/0c792f79-0d4d-4e3a-94fa-80495d84adc5)![6075334_1251170_aokicyber_untitled-6075334 d2cd7e7103e9837fc0b935240996c316](https://github.com/user-attachments/assets/7f00e3db-c10f-498d-8458-6e9017b237ac)
+
 ---
 
 
